@@ -10,3 +10,7 @@
 
 https://blog.naver.com/benjo11/223303161220?&isInf=true
 - 유효기간 2년
+
+#### 장소
+
+- 맨하튼 - 소호 - 브루클린
